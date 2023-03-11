@@ -1,2 +1,3 @@
 # Professional-Sec-Gamers
-Narrative Designer/Scenario Writer/In-House Writer/Company Secretary/ Director Assistant 
+Scenario Writer/In-House Writer/Company Secretary/ Director Assistant 
+Charator Animation Assisitant 
